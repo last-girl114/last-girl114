@@ -1,0 +1,10 @@
+- 👋 Hi, I’m @last-girl114
+- 👀 I’m interested in Somthing Unbelievable 
+- 🌱 I’m currently learning How to escape From This World
+- 💞️ I’m looking to collaborate on Myterious Things
+- 📫 How to reach me You Have to Die
+
+<!---
+last-girl114/last-girl114 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
